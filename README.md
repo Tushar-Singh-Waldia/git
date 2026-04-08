@@ -1,5 +1,4 @@
 bnlnlnklnl sldknvsvklsndvlknsdv
 aldcknas
-sldknvsvklsndvlknsdv
-aldcknas
+sl\
 sldk]
